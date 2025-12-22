@@ -1,4 +1,4 @@
 # About me 👋
 
-let me complete this part later ...
+My profile page is coming s∞n ~
 
